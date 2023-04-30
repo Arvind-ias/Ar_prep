@@ -42,4 +42,6 @@ International Relations : https://1drv.ms/o/s!AmM_4WqpLvRMmXlY9e_0I8oCLG1h?e=BC3
 
 Science and Technology : https://1drv.ms/o/s!AmM_4WqpLvRMmXVXeYQMzrjsk12v?e=WEv7mS 
 
+Environment : https://1drv.ms/o/s!AmM_4WqpLvRMmjyrKgqI0YXE1Bo6?e=NgHkHW 
+
 Society : https://1drv.ms/o/s!AmM_4WqpLvRMmX3UUEyCBwsrODXb?e=tLIUD9  
