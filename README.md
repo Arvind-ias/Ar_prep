@@ -36,7 +36,7 @@ Polity : https://1drv.ms/o/s!AmM_4WqpLvRMmW3veNFUZiU7Rzh5?e=hrCcKQ
 
 Economics : https://1drv.ms/o/s!AmM_4WqpLvRMmXFr4J4P6rBik0kp?e=4XAZ76
 
-History : https://1drv.ms/o/s!AmM_4WqpLvRMmWnkVIj-oTcLC_2S?e=DfFLSm 
+History : https://1drv.ms/o/s!AmM_4WqpLvRMmWnVBZz6gW4gyYDZ?e=nESgai 
 
 International Relations : https://1drv.ms/o/s!AmM_4WqpLvRMmXlY9e_0I8oCLG1h?e=BC3Ap3 
 
